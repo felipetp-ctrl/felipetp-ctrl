@@ -36,7 +36,7 @@ I’m continuously improving my ability to **bridge business and technical persp
 ---
 
 📫 **Let’s connect:**
-[LinkedIn](https://www.linkedin.com/in/felipetomepereira/) | [Email](mailto:felipetpereira1@gmail.com)
+[LinkedIn](https://www.linkedin.com/in/felipetpereira/) | [Email](mailto:felipetpereira1@gmail.com)
 
 ---
 
